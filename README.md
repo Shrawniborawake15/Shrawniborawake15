@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Shrawniborawake15
 - 👀 I’m interested in drawing,learning new things,dancing
-- 🌱 I’m currently learning in sanjivani
+- 🌱 I’m currently learning in sanjivani university
   
 
 <!---
